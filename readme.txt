@@ -1,2 +1,1 @@
-dupa ruchanie i pierdolenie
-
+this is where I have been documenting my painful pursuit of perfection
